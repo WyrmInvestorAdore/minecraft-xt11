@@ -1,4 +1,4 @@
-#  
+#  elite minecraft Script is the best minecraft Script, featuring aimbot and one-hit kill. Safe and powerful for all your needs.
 
 
 
